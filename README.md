@@ -1,5 +1,3 @@
-
-Introduction
 Hi, I'm Monish raj T, a student at Karpagam College of Engineering. My passion lies in programming, and I enjoy listening to music in my free time.
 
 Portfolio Overview
