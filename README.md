@@ -12,5 +12,5 @@ Contact Information
 - Email: monishraj2k5@gamil.com
 - LinkedIn: [Monishraj](https://www.linkedin.com/in/monish-raj-t/))
 
-How to Reach Me
+How to Reach Me:
 I'm open to new opportunities and collaborations. Feel free to reach out via LinkedIn or email.
